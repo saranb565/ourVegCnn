@@ -1,4 +1,4 @@
 Saran B,
-Dhanush Vikraman G B,
+Danush Vikraman G B,
 Ayush Nema,
 Bhavesh G.
